@@ -8,3 +8,4 @@ tangente
 2ºANO
 
 OK
+![download](https://user-images.githubusercontent.com/115049697/196568429-beb35da9-239b-4781-972b-01a0f29d29fd.jpg)
